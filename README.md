@@ -25,7 +25,7 @@
 
 [Коптюх Назар](https://github.com/GrossmasterGod)
 
-[Поморова ](https://github.com/masha-pmrv)
+[Поморова Марія](https://github.com/masha-pmrv)
 
 [Хоменко Олег](https://github.com/Oleh-Khomenko)
 
